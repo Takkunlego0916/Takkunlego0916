@@ -9,4 +9,10 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Takkunlego0916&icon=2&color=8)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+## SNS
+ - [YouTube](https://youtube.com/@Takkunlego0916)
+ - [Twitter(X)](https://x.com/takkunlego0916)
+ - [Instagram](https://www.instagram.com/takkunmcjp)
+ - [TikTok](https://www.tiktok.com/@takkunlego0916)
+ - Discord: @takkun_mc_jp
+ - 
