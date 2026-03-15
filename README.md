@@ -15,4 +15,3 @@
  - [Instagram](https://www.instagram.com/takkunmcjp)
  - [TikTok](https://www.tiktok.com/@takkunlego0916)
  - Discord: @takkun_mc_jp
- - 
